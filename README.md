@@ -1,12 +1,1 @@
-# FrisbeeWP
 # calc
-# calc
-# calc
-# calc
-# calc
-# FrisbeeWP
-# calc
-# calc
-# calc
-# calc
-# FrisbeWP
